@@ -1,6 +1,6 @@
-                                                        Hello 👋, I'am MaMaD TurK 👑
+                                                  Hello 👋, I'am MaMaD TurK 👑
 ________________________________________________________________________________________________________________________________________________________________________                                                            
-                                                        I'am Developer From Iran[🛠]
+                                                  I'am Developer From Iran[🛠]
 ⬧︎ ✨ Your time is limited, try and progress ...!  
 
 ⬧︎ 📣 How to reach me  InstaID: mamad_6turk9 ❕                                                                          
