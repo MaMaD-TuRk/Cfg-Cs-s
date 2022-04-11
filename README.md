@@ -3,7 +3,7 @@ ________________________________________________________________________________
                                                             I'am Developer From Iran[🛠]
 ⬧︎ ✨ Your time is limited, try and progress ...!  
 
-⬧︎ 📣 How to reach me  InstaID: mamad_6turk9 ❕        <img src="https://media1.giphy.com/media/qgQUggAC3Pfv687qPC/giphy.gif" width="100px" style="max-width: 100%;">            
+⬧︎ 📣 How to reach me  InstaID: mamad_6turk9 ❕        <img src="https://media1.giphy.com/media/qgQUggAC3Pfv687qPC/giphy.gif" width="200px" style="max-width: 100%;">            
 
 ⬧︎ 💼 Professional development training course
 
